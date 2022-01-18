@@ -1,0 +1,1 @@
+I’m a designer and a coder, driven by the belief that exceptional design elevates the world. I’m a logical thinker, thrive in truly collaborative environments and I’m always looking for the most elegant way to meet a challenge.
